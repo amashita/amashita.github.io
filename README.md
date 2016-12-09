@@ -1,1 +1,0 @@
-# amashita.github.io
